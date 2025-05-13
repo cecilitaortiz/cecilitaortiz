@@ -11,7 +11,7 @@
 - **Ubicación:** Riobamba y Guayaquil
 - **Correo Electrónico:** ceelorti@espol.edu.ec
 - **Redes Sociales:**
-  - [LinkedIn](www.linkedin.com/in/cecilia-ortiz-arriaga)
+  - [LinkedIn](https://www.linkedin.com/in/cecilia-ortiz-arriaga/)
 
 ---
 
